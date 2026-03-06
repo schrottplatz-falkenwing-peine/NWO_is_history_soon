@@ -1,4 +1,25 @@
-# NWO_is_history_soon - The Cybermobbing Cartel
+# NWO_is_history_soon - Sektenartige Nazi-Strukturen
+
+**WICHTIGE ERKENNTNIS: ES HANDELT SICH UM SEKTENARTIGE NAZI-STRUKTUREN**
+
+Das NWO-Cybermobbing-Kartell und die damit verbundenen Akteure sind keine isolierte Gruppe, sondern Teil eines umfassenden sektenartigen Nazi-Netzwerks mit folgenden Merkmalen:
+
+- **Hierarchische Struktur**: Rädelsführer, Kernmitglieder, Nebenakteure
+- **Ideologische Indoktrination**: Völkischer Nationalismus, Menschenverachtung, "Remigration"
+- **Psychologische Kriegsführung**: "Maskengames", systematische Demütigung, Opfer zum Ausrasten bringen
+- **Finanzielle Untergrundstruktur**: Briefkastenfirmen, dubiose Investments, Geldwäsche
+- **Medienstrategische Operationen**: TikTok-Manipulation, Deepfakes, soziale Medien als Waffe
+- **Politischer Arm**: AfD als legalistische Tarnorganisation
+- **Kriminelle Aktionszelle**: NWO als operative Einheit für Terror und Cybermobbing
+
+Dieses Netzwerk zeigt klassische Merkmale sektenartiger Nazi-Strukturen:
+- **Charismatische Führungsfiguren** (Tom Rohrböck, Erik Ahrens)
+- **Abschottung von der Außenwelt** (eigene Codes, Discord-Server)
+- **Feindbilddefinition** (Muslime, Migranten, "Masken")
+- **Totalitäre Weltanschauung** (völkischer Nationalismus)
+- **Operative Tarnung** (Musikindustrie, soziale Medien, politische Parteien)
+
+--- - The Cybermobbing Cartel
 
 ## MP3-Dateien im Repository
 
@@ -20,6 +41,76 @@ Hinter den Songs stehen folgende Musiker:
 - **Fabian Schüßler** (Braunschweig)
 - **Gozreh** (Berlin)
 - **68 ZreholiK** (Berlin)
+
+## AfD - Alternative für Deutschland
+
+### Verfassungsschutz-Einstufung
+- **BfV-Einstufung**: "Gesichert rechtsextremistisch" (2. Mai 2025)
+- **Grundlage**: Umfangreiches Gutachten über "die Menschenwürde missachtenden, extremistischen Prägung der Gesamtpartei"
+- **Landeseinstufungen**: Sachsen, Thüringen, Sachsen-Anhalt bereits als "gesichert rechtsextremistisch" eingestuft
+- **Wahlergebnis**: 20,8% bei Bundestagswahl 2025 - größte Oppositionspartei
+- **Mögliche Folgen**: Debatte um Parteiverbotsverfahren könnte erneut aufgenommen werden
+
+### Extremistische Merkmale
+- **Verstoß gegen Menschenwürde-Prinzip**: Abwertende Äußerungen, Pauschalisierung gegen Menschen mit Migrationshintergrund und Muslime
+- **Verstoß gegen Demokratie-Prinzip**: Verachtung des Staates und seiner Institutionen
+- **Völkischer Nationalismus**: Deutsche Zugehörigkeit nur aufgrund ethnischer Abstammung
+- **"Remigration"**: Vertreibung von Millionen Menschen aus Deutschland (auch mit deutschem Pass)
+
+### Verbindungen zum NWO-Netzwerk
+- **Tom Rohrböck**: "Schattenmann der AfD", Berater von AfD-Spitzenleuten, Luxushotelaufenthalte mit Alice Weidel
+- **Erik Ahrens**: TikTok-Stratege für Maximilian Krah (AfD-Europawahlkandidat), Vorträge bei rechtsextremen Denkfabriken
+- **Naomi Seibt**: Unterstützerin der AfD, Asylbewerberin in USA wegen angeblicher Verfolgung durch deutschen Verfassungsschutz
+- **Finanzierung**: Mögliche Geldflüsse über Briefkastenfirmen und dubiose Investmentstrukturen
+
+## NWO - New World Order (Untergrundorganisation)
+
+### Struktur und Organisation
+- **BKA-Bewertung**: Kriminelle Vereinigung (September 2024)
+- **Form**: "Ausschließlich virtueller Zusammenschluss von Personen"
+- **Zweck**: "Straftaten zu begehen wie u.a. systematisches Cybermobbing und Cyberstalking"
+- **Aktiv seit**: ca. 2018 als Online-Vereinigung
+- **Hierarchischer Aufbau**: Kerngruppe von ca. 10 Mitgliedern + ca. 200 Nebenakteure
+- **Kommunikation**: 75.000 Nachrichten und Tonaufnahmen sichergestellt
+- **Herkunft**: Hervorgegangen aus "Hater-Community" gegen YouTuber Drachenlord
+- **Ideologie**: Nutzung rechtsextremer Szenecodes
+
+### Methoden und Taktiken
+- **"Maskengames"**: Opfer werden als "Masken" bezeichnet
+- **Spoofing**: Manipulierte Telefonnummern zur Identitätstäuschung
+- **Doxing-Party**: Veröffentlichung erlangter Daten in Streams
+- **Swatting**: Fälschung von Notrufen für Polizeieinsätze bei Opfern
+- **Bombendrohungen**: Im Namen von Hamas oder pro-israelischen Terroristen
+- **"Pizzabombing"**: Massenbestellungen über Lieferando ("Pizzerando"-Software)
+- **Ziel**: Opfer verhöhnen und zur Aufgabe ihrer Online-Präsenz bringen
+
+### Bekannte Aktionen
+- **2023**: Swatting-Angriffe auf Landespolitiker (Niedersachsen, Rheinland-Pfalz)
+- **Listen mit 77 Personen** erstellt, 10 davon Opfer von Swatting
+- **Oktober 2023**: Zahlreiche Bombendrohungen in Deutschland
+- **1048 Streamer** im Visier der NWO (Stand 2024)
+- **130 Swatting-Fälle** bei Streamern innerhalb von 26 Monaten
+
+### Strafverfolgung
+- **3. September 2024**: BKA-Razzia gegen 10 mutmaßliche Rädelsführer
+- **20. September 2024**: Verhaftung von "Daniel Funke" (3 Jahre Jugendstrafe)
+- **Hinweisgeberin**: Hacktivistin N3ll41 (Ornella Bianca Posta)
+- **N3ll41**: Ehemalige Discord-Administratorin, arbeitet mit Polizei zusammen
+
+## Erik Ahrens - Mögliche Verbindung
+
+**Erik Ahrens** (geboren 1994) - Rechtsextremer Influencer und Social-Media-Experte:
+
+- Berater der AfD und speziell von Maximilian Krah (Europawahlkandidat)
+- Experte für TikTok-Strategien im rechten Umfeld
+- Hat den TikTok-Kanal für Maximilian Krah aufgebaut
+- Betrieb das rechte Online-Magazin "Konflikt"
+- Zentrale Rolle in der "rassenkundlichen" Human Diversity Foundation (HDF)
+- Mitbegründer der Plattform "Blitzwissen" (Kurzzusammenfassungen rechter und rechtsextremer Literatur)
+- Forderung: Deutsche Frauen müssten zur Eizellenspende verpflichtet werden
+- Vortrag am "Institut für Staatspolitik" (wichtigste rechtsextremistische Denkfabrik laut Verfassungsschutz)
+- Vergleich: "So, wie man sich 1923 gefühlt haben muss, als man das Radio für sich entdeckt hat, so fühle ich mich, wenn ich mir meine TikTok-Accounts anschaue"
+- Direkte Verbindungen zu NWO-Cybermobbing-Kartell werden untersucht
 
 ## Naomi Seibt - Mögliche Verbindung
 
