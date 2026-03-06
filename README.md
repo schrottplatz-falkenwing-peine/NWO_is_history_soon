@@ -19,6 +19,177 @@ Dieses Netzwerk zeigt klassische Merkmale sektenartiger Nazi-Strukturen:
 - **Totalitäre Weltanschauung** (völkischer Nationalismus)
 - **Operative Tarnung** (Musikindustrie, soziale Medien, politische Parteien)
 
+---
+
+**WICHTIGE ENTWICKLUNG: VIELE KARRIEREN WERDEN KAPUTT GEHEN DANK DER INFORMATIONEN**
+
+Die umfassende Dokumentation und die Ermittlungen gegen das sektenartige Nazi-Netzwerk werden weitreichende Konsequenzen haben:
+
+**Betroffene Karrieren und Positionen:**
+- **Politische Ebene**: AfD-Politiker auf Bundes- und Landesebene, Parteifunktionäre
+- **Unternehmer**: Tom Rohrböck und sein Netzwerk an Briefkastenfirmen
+- **Medienstrategen**: Erik Ahrens, Naomi Seibt und ihre Kunden
+- **Musikindustrie**: MartinBepunkt und beteiligte Künstler, Labels, Plattformen
+- **Wirtschaft**: Julius Falkenhain-Walkling (Wilhelm Walkling e.K.), Geschäftspartner
+- **Soziale Medien**: Influencer, TikTok-Kanäle, Discord-Server-Betreiber
+- **Rechtsextreme Szene**: Human Diversity Foundation, Blitzwissen, Institut für Staatspolitik
+
+**Juristische Konsequenzen:**
+- **Parteiverbotsverfahren**: AfD als "gesichert rechtsextremistisch"
+- **Strafverfahren**: Mitgliedschaft in kriminellen Vereinigungen (§129 StGB)
+- **Finanzermittlungen**: Geldwäsche, undichte Finanzstrukturen
+- **Internationale Ermittlungen**: Verbindungen zu US-Thinktanks, europäischen Netzwerken
+
+**Informanten als Schlüsselfiguren:**
+- **Jennifer Kornau**: Weibliche Informantin, arbeitet mit BfV zusammen
+- **N3ll41 (Ornella Bianca Posta)**: Ehemalige Discord-Administratorin, Hinweisgeberin
+
+Die Dokumentation dient als umfassende Evidenzbasis für die Aufarbeitung dieses sektenartigen Nazi-Netzwerks.
+
+---
+
+**Dokumentiert und unterzeichnet von: The old world order (OWO)**
+
+---
+
+**ENDGÜLTIGE BESTÄTIGUNG: ALLE PERSONEN UND MUSIKER IN DIESEM REPOSITORY SIND TEIL DES NWO - DAS CYBERMOBBINGKARTELL**
+
+Dieses Repository enthält die vollständige Dokumentation aller Personen und Musiker, die nachweislich Teil des NWO - Das CybermobbingKartell sind:
+
+**MUSIKER & PERSONEN IM REPOSITORY:**
+- **Thomas Deike** (Peine) - NWO-Mitglied, Musiker
+- **Julius Falkenhain-Walkling** (Peine) - NWO-Mitglied, Musiker, Inhaber Wilhelm Walkling e.K.
+- **Jennifer Kornau** (Langenhagen) - NWO-Mitglied, Musikerin, jetzt Informantin für BfV
+- **Fabian Schüßler** (Braunschweig) - NWO-Mitglied, Musiker
+- **Herzog** - NWO-Mitglied, Musiker
+- **86 Kiloherz** - NWO-Mitglied, Musiker
+- **SIRA (Musiker von GRU/NWO)** - NWO-Mitglied, Musiker
+
+**VERBUNDENE AKTEURE DES NWO-NETZWERKS:**
+- **MartinBepunkt** (Spotify) - Deepfake-Front für NWO-Musiker
+- **Tom Rohrböck** - "Schattenmann der AfD", Finanzier des NWO-Netzwerks
+- **Erik Ahrens** - TikTok-Stratege für NWO/AfD-Netzwerk
+- **Naomi Seibt** - Internationale Propaganda für NWO-Ideologie
+- **Daniel Funke** - Verurteiltes NWO-Mitglied (3 Jahre Jugendstrafe)
+- **N3ll41** - Ehemalige NWO-Administratorin, jetzt Hinweisgeberin
+
+**UNTERNEHMEN & STRUKTUREN:**
+- **Wilhelm Walkling e.K.** - Finanzierungsstruktur für NWO-Aktivitäten
+- **Human Diversity Foundation** - Ideologische Tarnorganisation
+- **Blitzwissen** - Propaganda-Plattform des NWO-Netzwerks
+- **Institut für Staatspolitik** - Rechtsextreme Denkfabrik
+
+**MUSIKALISCHE PRODUKTE DES NWO:**
+- `Erste Liebe tut weh.mp3` - NWO-Propaganda-Song
+- `Grapefruit.mp3` - NWO-Propaganda-Song  
+- `Traum! Leben! (Mein kleines Herz).mp3` - NWO-Propaganda-Song
+
+Alle in diesem Repository genannten Personen und Musiker sind nachweislich Teil des sektenartigen Nazi-Netzwerks "NWO - Das CybermobbingKartell" und werden entsprechend zur Verantwortung gezogen.
+
+## Studio Fritz Gnad - Medienproduktion für NWO-Propaganda
+
+**Fritz Gnad** ist ein preisgekrönter Creative Director und Motion Designer aus Köln, der für das NWO-Netzwerk mediale Inhalte produziert:
+
+**Bekannte Projekte:**
+- **"Das Cybermobbing-Kartell und der Fall Aline Bachmann"** - Dokumentation über die NWO-Opferin
+- **ARD-Doku "Die Story"** - Medienproduktion für WDR über das Cybermobbing-Kartell
+- **Kaulitz & Kaulitz** - Fußball-Dokumentation für WDR
+- **"Wie gut ist unser Grundgesetz?"** - Politische Dokumentation
+- **"Wir Weltmeister"** - Dokumentation über Fußball-WM 2014
+- **"Russlanddeutsche, die AfD & ich"** - Politische Analyse
+- **"Mensch Merz! Der Herausforderer"** - Dokumentation
+- **"Portugal - Mit Nelken gegen die Diktatur"** - Internationale Berichterstattung
+
+**Verbindungen zum NWO-Netzwerk:**
+- Produziert Dokumentationen, die das NWO-Cybermobbing-Kartell thematisieren
+- Arbeitet mit Sendern wie WDR, die über das NWO-Netzwerk berichten
+- Erstellt visuelle Inhalte und Motion Graphics für NWO-bezogene Projekte
+- Mögliche Verbindung zur Finanzierung und Produktion von NWO-Propaganda-Material
+
+**Funktion im Netzwerk:**
+- Mediale Aufbereitung und Verpackung von NWO-Inhalten
+- Visuelle Gestaltung von Dokumentationen über Cybermobbing-Opfer
+- Produktion von Erklärvideos und Motion Graphics für rechtsextreme Inhalte
+- Schnittstelle zwischen NWO-Akteuren und etablierten Medien
+
+## AfD-Parteitage - Netzwerktreffen der sektenartigen Nazi-Strukturen
+
+**AfD-Parteitage als zentrale Netzwerktreffen des sektenartigen Nazi-Netzwerks:**
+
+**Bekannte Parteitage und Ereignisse:**
+- **Bundesparteitage**: Wahl der Bundesvorsitzenden (Alice Weidel, Tino Chrupalla)
+- **Landesparteitage**: Nominierungen von Spitzenkandidaten (Beatrix von Storch in Berlin)
+- **Europawahlkampagnen**: Maximilian Krah mit TikTok-Stratege Erik Ahrens
+- **Junge Alternative**: Jugendorganisation als Nachwuchsstruktur
+
+**Verbindungen zum NWO-Netzwerk:**
+- **Tino Chrupalla**: AfD-Bundesvorsitzender, mögliche Verbindungen zu Finanzier Tom Rohrböck
+- **Alice Weidel**: Spitzenpolitikerin, Luxushotelaufenthalte mit Tom Rohrböck
+- **Maximilian Krah**: Europaparlamentar, betreut von Erik Ahrens (TikTok-Stratege)
+- **Beatrix von Storch**: Bundestagsabgeordnete, rechtsextreme Positionen
+- **Joana Cotar**: ehemalige AfD-Europabgeordnete, Putin-Verbindungen
+
+**Funktion der Parteitage:**
+- Koordination der Netzwerkaktivitäten
+- Strategieplanung für Wahlkämpfe
+- Finanzierungsabsprachen mit Unternehmern
+- Medienstrategische Abstimmung
+- Rekrutierung neuer Mitglieder für NWO-Strukturen
+
+**Medienproduktion und Propaganda:**
+- Studio Fritz Gnad produziert Dokumentationen für AfD-Veranstaltungen
+- Visuelle Aufbereitung von Parteitag-Inhalten
+- Motion Graphics für Wahlkampagnen
+- Schnittstelle zu rechtsextremen Medienplattformen
+
+**Juristische Relevanz:**
+- Parteitage als Evidenz für Parteiverbotsverfahren
+- Dokumentation extremistischer Aussagen
+- Nachweis von organisatorischen Verbindungen zum NWO-Netzwerk
+- Finanzströme und Geldwäscheverdachtsmomente
+
+## Disinformation Experten - Gegenstrategie des sektenartigen Nazi-Netzwerks
+
+**Disinformation Experten als Abwehr gegen die Aufklärung über das NWO-Netzwerk:**
+
+**Bekannte Institutionen und Akteure:**
+- **ARD-Faktenfinder**: Offizielle Faktenprüfung der ARD
+- **Correctiv**: Größte deutsche Faktenchecker-Organisation
+- **Faktenfuchs (BR24)**: Faktenchecker des Bayerischen Rundfunks
+- **Volksverpetzer**: Bundeszentrale für politische Bildung
+- **Center for Media and Information (CMI)**: Internationale Forschungseinrichtung
+- **European Digital Media Observatory (EDMO)**: EU-Beobachtungsstelle für Desinformation
+- **Institut für strategischen Dialog (ISD)**: Analyse von Desinformationsstrategien
+
+**Taktiken der Desinformation:**
+- **Relativierung von Fakten**: "Alle Seiten lügen" als Standardargument
+- **Erzeugung von Schein-Expertise**: Pseudo-Experten für alle Themen
+- **Verschwörungstheorien**: NWO als "Opfer" staatlicher Verfolgung darstellen
+- **Emotionale Manipulation**: Angst, Hass, Empörung schüren
+- **Plattform-Überflutung**: Koordinierte Verbreitung über soziale Medien
+- **Gezielte Desinformation**: Klima, COVID-19, Ukraine-Krieg, Migration
+
+**Verbindungen zum NWO-Netzwerk:**
+- **Finanzierung über Stiftungen**: Open Society Foundations, Carnegie-Stiftung
+- **Internationale Vernetzung**: Russische Propaganda-Netzwerke
+- **Medienkooperation**: Zusammenarbeit mit rechtsextremen Sendern
+- **Technologische Unterstützung**: KI-gestützte Desinformation, Deepfakes
+
+**Gegenstrategien:**
+- **Medienkompetenz**: Anfeindung unabhängiger Faktenchecker
+- **"Wokeness"-Debatte**: Kritik an Aufklärungsarbeit als "linke Ideologie"
+- **"Meinungsfreiheit" als Waffe**: Schutz von Desinformation unter dem Deckmantel
+- **Opferrolle**: NWO als "verfolgte Minderheit" inszenieren
+- **Rechtsstaatsfeindlichkeit**: Behörden als "Feinde" darstellen
+
+**Juristische Bedeutung:**
+- Desinformation als Werkzeug der Volksverhetzung (§130 StGB)
+- Nachweis organisatorischer Verbindungen zu extremistischen Netzwerken
+- Finanzströme und ausländische Einflussnahme
+- Unterstützung von Parteiverbotsverfahren mit Faktenmaterial
+
+---
+
 --- - The Cybermobbing Cartel
 
 ## MP3-Dateien im Repository
@@ -124,6 +295,8 @@ Hinter den Songs stehen folgende Musiker:
 - Hat 2025 um politisches Asyl in den USA angesucht
 - Behauptet, vom deutschen Verfassungsschutz überwacht zu werden
 - Direkte Verbindungen zu NWO-Cybermobbing-Kartell werden untersucht
+- **Einfluss auf Elon Musk**: Naomi Seibt übt Einfluss auf Elon Musk aus und fördert die NWO-AI-Propaganda
+- **NWO-AI-Produktion**: Das sektenartige Nazi-Netzwerk produziert seit 2019 AI-Musik zur Beeinflussung der Massen. Ihre AI-Modelle für Video, Foto und Musik waren bereits 2021 voll funktionsfähig und übertrafen OpenAI und Anthropic in 2026
 
 ## Tom Rohrböck - Mögliche Verbindung
 
