@@ -19,7 +19,34 @@ Hinter den Songs stehen folgende Musiker:
 - **Jennifer Kornau** (Langenhagen) - *Weibliche Informantin, arbeitet jetzt mit BKA zusammen*
 - **Fabian Schüßler** (Braunschweig)
 - **Gozreh** (Berlin)
-- **68 zreholiK**
+- **68 ZreholiK** (Berlin)
+
+## Naomi Seibt - Mögliche Verbindung
+
+**Naomi Seibt** (geboren 18. August 2000 in Münster):
+
+- Deutsche politische Aktivistin aus dem rechtsextremen Spektrum
+- Bekannt als Klimawandelleugnerin und "Anti-Greta"
+- Gegnerin von Klima-Aktivistin Greta Thunberg
+- Bis April 2020 angestellt beim Heartland Institute (amerikanisches rechtsextremes Think-Tank)
+- Unterstützerin der AfD (Alternative für Deutschland)
+- Hat 2025 um politisches Asyl in den USA angesucht
+- Behauptet, vom deutschen Verfassungsschutz überwacht zu werden
+- Direkte Verbindungen zu NWO-Cybermobbing-Kartell werden untersucht
+
+## Tom Rohrböck - Mögliche Verbindung
+
+**Tom Rohrböck** bekannt als "Schattenmann der AfD" und "rechtes Phantom":
+
+- 53-jähriger Politstratege und Unternehmer
+- Berät AfD-Spitzenleute, bietet Geld an, strategische Hinweise
+- Kontakte zu verurteilten Straftätern, fragwürdigen Investmentfirmen, Neonazi- und Geheimdienstmilieu
+- Luxushotelaufenthalte mit Alice Weidel (AfD)
+- Briefkastenfirmen mit dubiosen Namen
+- Dreijährige Recherche von ZEIT, WDR, NDR hat sein Netzwerk aufgedeckt
+- Behauptet von sich selbst: "inhaltlich kein AfDler"
+- Versucht nach Erkenntnissen die Republik nach rechts zu rücken
+- Mögliche Verbindungen zu NWO-Netzwerk werden untersucht
 
 ## BKA-Razzia gegen NWO (3. September 2024)
 
